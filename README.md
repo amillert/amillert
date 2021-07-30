@@ -1,4 +1,4 @@
-Albert here λ = :smile_cat: ∘ :computer:
+Albert here λ = :smile_cat: ∘ :desktop_computer:
 ---
 
 <p align="center">
